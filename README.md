@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @anonym111222
 - 👀 I’m interested in hacking
 - 🌱 I’m currently learning hacking
-- 💞️ I’m looking to collaborate on git hub
+- 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me tik tok : ANONYM GUY 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: nothing 
